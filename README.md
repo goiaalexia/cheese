@@ -1,1 +1,2 @@
-dati star va rog dau cheese la achievement-uri momentan
+starstruck achievement cheese repository 🧀
+fav for good luck 🍀
