@@ -1,2 +1,2 @@
 ##### starstruck achievement cheese repository 🧀
-fav for good luck 🍀
+- fav for good luck 🍀
